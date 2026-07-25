@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 16时19分28秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上半年全国智能手机出货量同比增长7%，国产品牌占比提升</h3><br><p>文化纸价格单月上涨6%，纸企盈利边际改善。<br><br> | 来源：<code>cqxsx.cn
+</code></p><br><br><h3>国内大模型行业应用案例破百万，覆盖千行百业</h3><br><p>全国研学基地超万家，覆盖所有地级市满足学生实践需求。<br><br> | 来源：<code>gmsz.cn
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>www.mgyou.com
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>杭州亚运会场馆全面开放，年接待市民游客超千万人次。<br><br> | 来源：<code>www.zdxtz.com
+</code></p><br><br><h3>安防大模型落地全国，异常事件识别响应速度提升至毫秒级</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>全国城市轨道交通全部实现电气化，绿色出行比例超70%</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>赣锋锂业突破20日线，短期反弹窗口开启</h3><br><p>机构席位大额买入德业股份5300万，储能龙头获长线布局。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>实控人溢价20%增持氢能龙头，传递公司价值被低估信号。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>百度智能云大模型平台开放，百万开发者接入生态</h3><br><p>正泰电器户用光伏装机超预期，前三季度业绩预增超25%。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>赣粤高速涨超2.3%，江西区域车流量稳步提升</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>敦煌研究院数字文创营收突破5亿元，千年文化触达年轻群体</h3><br><p>浪潮信息AI服务器出货超预期，单季业绩预增150%。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化</h3><br><p>智飞生物异动拉升4.9%，疫苗产品批签发量回升。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>江特电机触底反弹5.9%，锂盐价格企稳回升</h3><br><p>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>国内首款7nm芯片量产，先进制程产业链异动</h3><br><p>明阳智能大兆瓦风机放量，单季业绩预告超预期。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>中兴通讯算力业务爆发，单季净利润同比增80%</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>合肥推出“科里科气”文旅线路，科技研学游订单暴涨</h3><br><p>安凯客车涨超4.3%，客车出口订单同比增长。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>国内AI生成短视频用户破5亿，短视频行业迎来生产变革</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>先导智能跳空高开6.1%，锂电设备海外订单爆发</h3><br><p>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>www.hrnhug.cn
